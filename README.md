@@ -1,1 +1,0 @@
-# DermendzhievAndrey.github.io
